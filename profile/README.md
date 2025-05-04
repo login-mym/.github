@@ -1,4 +1,4 @@
-**Comment arrêter de payer les 20% de commissions sur MYM ?**
+**Comment arrêter de payer les 25% de commissions sur MYM ?**
 
 Découvrez comment éviter de payer 25 % de frais de commission sur MYM en passant à Exclu — la plateforme avec 0 % de commission et un contrôle total pour les créateurs.
 
